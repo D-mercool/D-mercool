@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @D-mercool
 - 👀 I’m interested in DEVELOP!
 - 🌱 I’m currently learning a lot of new
-- 💞️ I’m looking to collaborate on Binance
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me mercool.dima@gmail.com
 
 <!---
